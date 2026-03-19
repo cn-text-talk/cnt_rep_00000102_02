@@ -1,5 +1,6 @@
 <h3>========================================
-<br><a href="https://cn-text.github.io/IMG_Shake_MP3_Array_Templet/IMG_ART_V0000_02_13_Main.html?w=" target=_blank>LiHongZhi_Shake</a>
+<br><a href="https://cn-text.github.io/IMG_Shake_MP3_Array_Templet/IMG_ART_V0000_02_13_Main.html?w=李洪志震动机" target=_blank>LiHongZhi_Shake</a>
+<br>========================================
 <br>[我李洪志][用脸][把][那个人][修好了]，[你弄坏][那个人][干嘛]？敢用AR/VR,敢破坏[我李洪志][修好的][那个人]，必杀！[得罪][我李洪志]了！
 <br>[我李洪志死][把][那个人][修好了]，[你弄坏][那个人][干嘛]？敢用AR/VR,敢破坏[我李洪志死][修好的][那个人]，必杀！[得罪][我李洪志]了！
 <br>[我李洪志活][把][那个人][修好了]，[你弄坏][那个人][干嘛]？敢用AR/VR,敢破坏[我李洪志活][修好的][那个人]，必杀！[得罪][我李洪志]了！
